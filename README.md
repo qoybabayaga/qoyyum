@@ -1,0 +1,2 @@
+# qoyyum
+Amatiran Bang
